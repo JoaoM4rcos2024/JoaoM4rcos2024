@@ -2,7 +2,6 @@
 - 👀 I’m interested in technology
 - 🌱 I’m currently learning progamation
 - 💞️ I’m looking to collaborate on microsoft
-- 📫 How to reach me just want to
 - 😄 Pronouns: he / him
 - ⚡ Fun fact: i'm an only child
 
